@@ -1,1 +1,1 @@
-Jawann Beverly - SMASH Wayne State digital portfolio
+SMASH Wayne State digital portfolio
